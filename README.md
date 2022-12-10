@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @terdogncimen (Tayyib  Erdogan Cimen
+- Yaizilim Mühendisligi Oryantasyon Vize Videolarım Bu Youtube Oynatma Listesinde Bulunmaktadır.
+- https://www.youtube.com/watch?v=9Pe6Qcfc8BA&list=PLvrft9qA5DZYibjYxlY9AVWoY_NzEIJWM
